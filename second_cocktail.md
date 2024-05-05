@@ -1,1 +1,1 @@
-Something beautiful
+Something tasty
